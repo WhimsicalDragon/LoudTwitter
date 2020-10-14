@@ -7,7 +7,7 @@ The program will run forever once started, to kill it press ctrl+c it may take a
 
 Please join me on twitch some time and you can watch me code other awful things like this!
 
-#Special Thanks:
+# Special Thanks:
 
 Keebo, the smart for helping with debugging this mess @secodntotopkek on twitter and https://www.twitch.tv/zeus_pants on twitch
 
