@@ -15,4 +15,4 @@ RandomGuy14x for moral support https://www.twitch.tv/randomguy14x on twitch
 
 Aquafiinaa because she asked me to idk? https://twitter.com/Aguafiina/status/1305749820276178945 @Aguafiina on twitter and https://www.twitch.tv/aquafiinaa on twitch
 
-You for taking the time to look at and read this mess
+You for taking the time to look at and read this mess (If you want your twitter @ and twitch linked on here dm me on twitter or discord and tell me what for and I'll add you)
